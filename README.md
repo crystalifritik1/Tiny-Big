@@ -225,4 +225,4 @@ Tiny and Big is available as a **full free version**, allowing access to all fea
 Don't miss out on the adventure! **Download Tiny and Big now and start your journey today!**
 
 ---
-**Last updated:** 2026-11-09 17:57:29 UTC
+**Last updated:** 2026-11-10 01:08:05 UTC
